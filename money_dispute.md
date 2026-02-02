@@ -182,7 +182,7 @@ AA 必須事前確認，否則不成立
 我在意的不是金額本身，
 而是：我是否在付款前，被給予選擇權。
 
-最後的核心立場
+最後的核心立場!
 
 我並非反對 AA。
 如果當下有說 AA，我會照付。
@@ -196,6 +196,21 @@ AA 必須事前確認，否則不成立
 用道德感，取代程序正義。
 
 「一起出門就該出錢，不出就不合理。」
-但成熟、健康的金錢關係應該是：
 
-先有清楚的程序與共識，才談道德與感受。
+但成熟、健康的金錢關係應該是：先有清楚的程序與共識，才談道德與感受。
+
+![631593C4-7A8A-4414-822A-B5D9A70B260F_1_105_c](https://github.com/user-attachments/assets/f38e0129-b335-4f1e-a0ae-1e9f1aaffe0c)
+
+![E67496AB-31A3-4475-BB2C-98C02242C892_1_201_a](https://github.com/user-attachments/assets/0fe8ef80-7f7c-4f97-b0f5-f1af22157fc5)
+
+![E62BAADF-1031-4CE0-9C36-998C6D34CCC5_1_105_c](https://github.com/user-attachments/assets/65aad98d-5e17-4550-aa1a-ad312d53e79c)
+
+![FF639B5E-F97F-40CF-84F9-0CB45E677DC2_1_105_c](https://github.com/user-attachments/assets/deb8f145-6f86-4a27-ac89-a7d2814a8640)
+
+![63EB8CFA-781F-4E75-B66E-D4E2FA5C40DB_1_105_c](https://github.com/user-attachments/assets/e6bd5d60-cce4-43b7-8c6c-262709d803fa)
+
+![7D7320E2-8661-4768-82AA-998B92E94E05_1_105_c](https://github.com/user-attachments/assets/58094dc5-1eab-4e97-9ce7-667084aefdf4)
+
+![90FBF225-3DC0-48D4-BF9E-ECA6AF08627F_1_105_c](https://github.com/user-attachments/assets/a474713c-e0be-4b3e-ba47-b129db332aa5)
+
+
